@@ -10,4 +10,4 @@ Here are some ideas to get you started:
 
 - Video games, preferably with friends
 - Tabletop games, again with friends
-- Movies, enjoyer the theater experience. 
+- Movies, enjoyer of the theater experience. 
